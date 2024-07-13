@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @guywithcoolusername
 - 👀 I’m interested in Everything Tech Related
-- 💞️ I’m looking to collaborate on freeing the world from the invisible hands
 - 📫 How to reach me : @guywithname
 - 😄 Pronouns: san/to
 - ⚡ Fun fact: im on geeker time
