@@ -2,7 +2,7 @@
 - 👀 I’m interested in Everything Tech Related
 - 💞️ I’m looking to collaborate on freeing the world from the invisible hands
 - 📫 How to reach me : @guywithname
-- 😄 Pronouns: per/co/set
+- 😄 Pronouns: san/to
 - ⚡ Fun fact: im on geeker time
 
 <!---
